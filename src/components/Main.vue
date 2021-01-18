@@ -7,7 +7,7 @@
       our clients, vendors, associates, staff, and consumers for several great
       years. As many of you may know, our ethos has been to change the public
       perception of a very broken industry, treat consumers with respect and
-      dignity, and pur people before profits.
+      dignity, and our people before profits.
     </p>
     <p>
       We believe that we were successful in operating by those principals,
